@@ -10,4 +10,4 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: Beyond the lines of code, I'm an aspiring sky photographer, capturing the beauty of celestial events. Let's share the wonders of both the digital and natural worlds!
+⚡ Fun fact: Beyond the lines of code, I'm an aspiring sky Photographer, capturing the beauty of celestial events. Let's share the wonders of both the digital and natural worlds!
