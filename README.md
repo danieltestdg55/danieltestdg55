@@ -4,7 +4,7 @@
 
 🌱 Currently, I'm on a learning odyssey, immersing myself in the languages of machine learning] and ethical hacking. Whether it's deciphering algorithms or ethical code-breaking, I'm on a quest for perpetual growth.
 
-💞️ I'm actively seeking collaboration opportunities on projects that bridge the realms of tech education and interactive web experiences. If you're passionate about making technology accessible or creating captivating web journeys, let's join forces and make an impact!
+💞️ I'm actively seeking collaboration opportunities on projects that bridge the realms of tech education and interactive web experiences. If you're passionate about making technology accessible or creating captivating web journeys, let's join forces and make an impact!!
 
 📫 Reach out to me through [daniel.testdg55@gmail.com](mailto:daniel.testdg55@gmail.com) for inquiries, collaboration proposals, or just to swap ideas and thoughts.
 
